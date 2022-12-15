@@ -89,7 +89,37 @@ https://www.youtube.com/watch?v=ngGPf8aTBjk
 
 ### GRY DO KTÓRYCH POSTARAM SIĘ ZBLIŻYĆ
 # *METAL SLUG* + *RAYMAN ORIGINS*
+---
+---
+# **PITCH DO MOJEJ GRY**
+---
 
+## **_NIesamowita szansa na powrót do typowej strzelanki z automatów do gier, ale w nowej futurystycznej oprawie. Klasyczna gra platformowa 2D, która przywoła wspomnienia, nawiązującą do takich klasyków jak Metal Slug czy Rayman, ale w nowej odświeżonej wersji graficznej. Moja strzelanka 2D będzie w kolorowej cyberpunkowej oprawie graficznej z przeciwnikami i brońmi z przyszłości, z niebywale kolorową i wybuchową atmosferą. Odkryj platformówki 2D na nowo!_**
+## **_UPS: METALSLUG W STYLISTYCE CYBERPUNK_**
 
+---
+---
+# **STORYBOARD + GRAPHICS**
+---
+#### Będę korzystał z darmowych dostępnych assetów z internetu.
+---
+https://sirnosir.itch.io/pixelwhale-sf
 
+https://the-baldur.itch.io/neon-city-pixel-art-pack-main-character-1
+
+https://maidenlessduck.itch.io/robotbasepack
+
+https://merly23.itch.io/slimered-and-gren
+
+https://ansimuz.itch.io/sunnyland-chibi-monsters-pack-1
+
+https://free-game-assets.itch.io/free-characters-with-melee-attack-pixel-art
+
+https://nemorium.itch.io/cyberpunk-cafe
+
+https://free-game-assets.itch.io/free-guns-for-cyberpunk-characters-pixel-art
+
+https://free-game-assets.itch.io/free-truck-constructor-pixel-art
+
+https://free-game-assets.itch.io/free-city-enemies-pixel-art-sprite-sheets
 
